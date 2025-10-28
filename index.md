@@ -1,3 +1,3 @@
 # Aidan's Portfolio
 
-Welcome! Work in progress.
+Welcome! I'm an instructor at SIPA. Work in progress.
